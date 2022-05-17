@@ -1,0 +1,2 @@
+# MGT120_Team8_Final_Project
+MGT120_Team8_Final_Project for Trucking Industry
